@@ -26,6 +26,6 @@
 
 ### 📫 How to reach me:
 - [Telegram](https://t.me/oybekcyber)
-- [Email](mailto:oybekcyber01@gmail.com)
+- [Email](mailto:mirkomilovoybek6@gmail.com)
 
 
